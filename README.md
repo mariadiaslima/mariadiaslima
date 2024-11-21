@@ -11,4 +11,6 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo redes sociais
 - 😄 Pronomes: ela/dela
 - ⚡ Curiosidade sou uma pessoa muito simpática.
-![image](https://github.com/user-attachments/assets/b9b2c826-6f2e-42e1-959c-a2980e0bf281)
+
+
+![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExbzdkc3JjcWJ5NzI1MWFsa3dkeTNiOGRmOGd1YXlzaGh3YWVoMnZxciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/kZqbBT64ECtjy/giphy.webp)
